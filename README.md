@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there, I'm DeLaCruz wave
+Hi there, I'm DeLaCruz 🤏😎
 
 
 ## 🌐 Socials:
