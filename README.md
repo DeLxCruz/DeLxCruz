@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there, I'm DeLaCruz 🤏😎
+Hi there, I'm DeLaCruz 😎🤏
 
 
 ## 🌐 Socials:
